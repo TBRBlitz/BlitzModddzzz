@@ -1,2 +1,2 @@
 # BlitzModddzzz
-Quest Mods that are for cool people
+BlitzModdzz has speedboost, long arms, Gravity -9.9 (gtags normal is -9.8), and tag aura, how to download? launch normal Gorilla tag and go in to a pub close the game and del it download the BlitzModdzz.apk with MT manager https://apkpure.com/mt-manager/bin.mt.plus then go to your library, hold grip on Gorilla tag and drag it out of your library and boom you have standalone mods Creds x6 (he made quest mods work) HERE IS THE MOD DOWNLOAD https://download1591.mediafire.com/85ueskrxc8qgDnBMyhyEBmEKj-f4WbHWCjX56qmP6-56QzQ0rMcc9NPWnhzlVN7T5jcQHjBZz-YnMVEhwO3xgNVg-k7dIyi3y2EVDf2D92M_ipXZ-euOYxiR2wp-dJnEbjBldS2gpg1SApEkovTR6kC6nfepfw27Ob5jl_ClsjN9Yw/c5d6i0d6rad532v/Blitz+Moddzz.apk
